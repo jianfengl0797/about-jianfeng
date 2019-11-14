@@ -1,6 +1,6 @@
  # JianFeng #
  
-[**jianfeng0797@hstat.org**](mail.google.com)  < My email
+[**jianfeng0797@hstat.org**](https://mail.google.com/mail)  < My email
 
  ### _High School Of Telecommunication Arts and Technology_ ###
  
