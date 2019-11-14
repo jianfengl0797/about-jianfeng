@@ -4,7 +4,7 @@
 
  ### _High School Of Telecommunication Arts and Technology_ ###
 I was born in China but later moved to America with my mom. I grew up in Brooklyn NY and go to HSTAT. 
-> My favorite schedules are:
+> My favorite subjects are:
 > * Gym
 > * SEP
 > * Science
