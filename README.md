@@ -1,6 +1,7 @@
  # JianFeng #
  
-[**jianfeng0797@hstat.org**](https://mail.google.com/mail)  < My email
+[**gmail**](https://mail.google.com/mail)  < My email is jianfengl0797@hstat.org
+[**github**](https://github.com/jianfengl0797/sep11-freedom-project)  < My freedom project for SEP
 
  ### _High School Of Telecommunication Arts and Technology_ ###
  
