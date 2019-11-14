@@ -3,7 +3,12 @@
 [**jianfeng0797@hstat.org**](mail.google.com)  < My email
 
  ### _High School Of Telecommunication Arts and Technology_ ###
-I was born in China but later moved to America with my mom. I grew up in Brooklyn NY and go to HSTAT. My favorite subjects in school is science, software engineering, and gym. 
+I was born in China but later moved to America with my mom. I grew up in Brooklyn NY and go to HSTAT. 
+> My favorite schedules are:
+> * Gym
+> * SEP
+> * Science
+
 
 > ### Schedule: ###
 >
