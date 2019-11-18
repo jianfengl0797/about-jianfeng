@@ -1,6 +1,6 @@
  # JianFeng #
  
- [**gmail**](https://mail.google.com/mail)  < My email is jianfengl0797@hstat.org
+ [**gmail**](https://mail.google.com/mail)  < My email is jianfengl0797@hstat.org 
  [**github**](https://github.com/jianfengl0797/sep11-freedom-project)  < My freedom project for SEP
 
 
